@@ -1,7 +1,6 @@
 ![LOGO](https://img4.uploadhouse.com/fileuploads/26711/2671125444f03c436557fdf4d79c37d105338010.png)
 # 色色地址发布页
 ### 微信用户和QQ用户请复制到浏览器访问！
-### 本发布页地址已经在腾讯网络过绿标，放心使用！
 ## 【地址1】：http://www.cpao6.com
 ## 【地址2】：http://www.cpao7.com
 ## 【地址3】：http://www.cpao8.com
