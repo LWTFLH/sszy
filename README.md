@@ -5,6 +5,6 @@
 ## 【地址2】：https://caov7.com
 ## 【地址3】：https://caov8.com
 ## 【大陆地址发布】：https://www.618750.com
-## 【海外地址】：http://www.ssmb1.com
+## 【海外地址】：https://www.ssmb1.com
 ## 【邮箱联系方式】：sszycom@outlook.com
 ### 重要提示：收藏本页面，明天发大财
